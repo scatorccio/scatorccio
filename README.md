@@ -5,7 +5,7 @@
 &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Viaoda+Libre&pause=1500&color=929292&width=435&lines=immerse+your+soul+in+love+.+%E2%9D%9C)](https://git.io/typing-svg)
 
 <p align="center">
-  <img width="600" height="260" src="https://files.catbox.moe/7vr7al.jpg">
+  <img width="600" height="260" src="https://files.catbox.moe/jh5h8j.webp">
 </p>
 
 &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [rentry](https://rentry.co/mizaiz) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [pronouns](https://pronouns.cc/@cheriecrush) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [strawpage](https://mizai.straw.page)
